@@ -1,1 +1,0 @@
-# SPACESTATIC_19hrvkr
